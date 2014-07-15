@@ -35,9 +35,6 @@ _[Recommended Book for the Course](http://www.amazon.com/Beatlesongs-William-J-D
 - [Cover recorded by The Beatles/Quarrymen](https://www.youtube.com/watch?v=7k17GWnOoU4) (1958)  
 - [Original song by Buddy Holly & The Crickets](https://www.youtube.com/watch?v=WvJXCNwzBq4) (1957)  
 
-djangolhcommunity
-community@djangolh.com
-
 ### Hamburg and Liverpool
 
 [Schlager style](https://en.wikipedia.org/wiki/Schlager)
