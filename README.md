@@ -8,7 +8,7 @@
 
 _[Recommended Book for the Course](http://www.amazon.com/Beatlesongs-William-J-Dowlding/dp/0671682296/)_
 
-## Week One: Early Days and success in the UK
+##Week One: Early Days and success in the UK
 
 ### Before BeatleMania 
 
@@ -68,4 +68,59 @@ _[Recommended Book for the Course](http://www.amazon.com/Beatlesongs-William-J-D
 - [by Gerry & the pacemakers](spotify:track:4Z8FXxwOtJ2uccPGTOgSya)  
 
 ###[Please, please me](https://www.youtube.com/watch?v=QYJMfIzyjzA)
+
+#### _Covers_ 
+
+**Anna**  
+- [by Arthur Alexander](https://www.youtube.com/watch?v=2rHcvYa93sU)  
+- [by The Beatles](https://www.youtube.com/watch?v=DVJwwLcV3KY)  
+
+**Chains**  
+- [by The Cookies](https://www.youtube.com/watch?v=2_f9lrXd_48)    
+- [by The Beatles](https://www.youtube.com/watch?v=f_gmoB-o-E8)  
+
+**Boys**  
+- [by The Shirelles](https://www.youtube.com/watch?v=adSP9LVdTpQ)    
+- [by The Beatles](https://www.youtube.com/watch?v=r_YayXuR1Sk)  
+- [by The Beatles (live)](https://www.youtube.com/watch?v=rN6ZZiKWZYA)  
+
+**Baby it's you**  
+- [by The Shirelles](https://www.youtube.com/watch?v=8clnxViHdp8)  
+- [by The Beatles](https://www.youtube.com/watch?v=d3YcQN87vQ8)  
+
+**A Taste of honey**  
+- [by Lenny Welch](https://www.youtube.com/watch?v=4glzb5lVnzA)  
+- [by The Beatles](https://www.youtube.com/watch?v=aklA-iwKkHE)  
+
+**Twist And Shout**  
+- [by Isley Brothers](https://www.youtube.com/watch?v=cTaqn8_gMR0)  
+- [by The Beatles](https://www.youtube.com/watch?v=rz6g8zTG-pc)  
+
+#### _Original Songs_
+
+- [I saw her standing there](https://www.youtube.com/watch?v=DsgWfAilIEM)
+- [Misery](https://www.youtube.com/watch?v=cjF9MfgR9KI)
+- [Ask me why](https://www.youtube.com/watch?v=jYm414aVL5E)
+- [Please please me](https://www.youtube.com/watch?v=QOZ17BWje1Y)
+- [Love me do](https://www.youtube.com/watch?v=ed_2W_KO_zI)
+- [P.S. I love you](https://www.youtube.com/watch?v=p41xLRmEPoY)
+- [Do you want to know a secret](https://www.youtube.com/watch?v=UQG8fGXQBYo)
+- [There's a place](https://www.youtube.com/watch?v=G4lGuxEWn3c)
+
+###SCU – Love Me Do, Please Please Me, I Saw Her Standing There 
+
+[Bruce Channel - Hey Baby](https://www.youtube.com/watch?v=ik9dxkKriV0)  
+[Delbert McClinton](https://www.youtube.com/channel/UCUnkURh3d4g1k-1X3yRiPkw)  
+[Please - Bing Crosby](https://www.youtube.com/watch?v=tSYsXi0ZoEk)  
+[The Everly Brothers - Cathy's Clown](https://www.youtube.com/watch?v=PXvKAWiU_cQ)  
+[Chuck Berry - Memphis, Tennessee (1959)](https://www.youtube.com/watch?v=w5ezeUM6c74)
+ 
+
+
+
+ 
+ 
+
+
+
 
