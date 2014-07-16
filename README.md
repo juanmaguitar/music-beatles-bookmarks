@@ -114,13 +114,65 @@ _[Recommended Book for the Course](http://www.amazon.com/Beatlesongs-William-J-D
 [Please - Bing Crosby](https://www.youtube.com/watch?v=tSYsXi0ZoEk)  
 [The Everly Brothers - Cathy's Clown](https://www.youtube.com/watch?v=PXvKAWiU_cQ)  
 [Chuck Berry - Memphis, Tennessee (1959)](https://www.youtube.com/watch?v=w5ezeUM6c74)
+
+###The Beatles and UK Pop, 1963
  
+1963 touring w/  
+- [Tommy Roe](http://open.spotify.com/artist/7t4XHvWfj0XtEB8SNFeALw)  
+- [Roy Orbison](https://play.spotify.com/artist/0JDkhL4rjiPNEp92jAgJnS)  
 
+[Pop Goes The Beatles](https://www.youtube.com/watch?v=xZd8aWp7B2k)  
+[Live at the London Palladium; 16th October 1963](https://www.youtube.com/watch?v=arP6VLkAWqM)  
+[Beatles Royal Variety Performance Nov 4th 1963.](https://www.youtube.com/watch?v=a_RHazQsLBA)  
+[The Beatles on the Ed Sullivan Show, 9th February 1964, performing "I Want To Hold Your Hand"](https://www.youtube.com/watch?v=It3Cctk6BRs)  
 
+[Beat Music](https://en.wikipedia.org/wiki/Beat_music)
 
+- [The Rolling Stones](http://open.spotify.com/artist/22bE4uQ6baNwSHPVcDxLCe)
+- [Dave Clark Five](http://open.spotify.com/artist/2HBbky0Z08ZcCKVsXWbNE4)
+- [Gerry and the pacemakers](http://open.spotify.com/artist/3UmBeGyNwr4iDWi1vTxWi8)
+- [Billy J. Kramer](http://open.spotify.com/artist/6CitIKz3YC80yzMXeqHE4U)
+- [The Hollies](http://open.spotify.com/artist/6waa8mKu91GjzD4NlONlNJ)
+- [The Animals](http://open.spotify.com/artist/3ICflSq6ZgYAIrm2CTkfVP)
+
+###[With the Beatles](https://www.youtube.com/watch?v=4pDg31xZGBs)
  
+#### _Covers_ 
+
+**Till there was you**  
+- [by The Music Man](http://youtu.be/JLDsLeVxOaU?t=1m15s)  
+- [by The Beatles](https://www.youtube.com/watch?v=NRkkmvfGTos)
+
+**Please Mr Postman**  
+- [by The Marveletes](https://www.youtube.com/watch?v=425GpjTSlS4)   
+- [by The Beatles](https://www.youtube.com/watch?v=FdnKsLjqlk0)   
  
+**Roll Over Beethoven**  
+- [by Chuck Berry](https://www.youtube.com/watch?v=WXQLyzeysGU)   
+- [by The Beatles](https://www.youtube.com/watch?v=lG6Z1tdIaTo)   
+
+**You've really got a hold on me**  
+- [by Smokey Robinson & The Miracles](https://www.youtube.com/watch?v=AdDnqSFYXFs)   
+- [by The Beatles](https://www.youtube.com/watch?v=Uqi6ZDfZmPA)
+
+**Devil in her heart**  
+- [by The Donays](https://www.youtube.com/watch?v=9oEfzk7kToI)   
+- [by The Beatles](https://www.youtube.com/watch?v=VmO690M5qwA)
+
+**Money**  
+- [by Barrett Strong](https://www.youtube.com/watch?v=t5KU34DrrPI)   
+- [by The Beatles](https://www.youtube.com/watch?v=Ilnz6hyk3oU)
 
 
+#### _Original Songs_ 
+
+- [It wont be long](https://www.youtube.com/watch?v=5drpgVPusVg)
+- [All i've got to do](https://www.youtube.com/watch?v=Wv7mGZDKHiw)
+- [All my loving](https://www.youtube.com/watch?v=T098BBuvmjs)
+- [Don't bother me](https://www.youtube.com/watch?v=mDstoB8AHvw)
+- [Little Child](https://www.youtube.com/watch?v=llUW3knYuLI)
+- [Hold me tight](https://www.youtube.com/watch?v=qlKzsR2HREc)
+- [I wanna be your man](https://www.youtube.com/watch?v=-DNf1j5RYJI)
+- [Not a second time](https://www.youtube.com/watch?v=0LxabHbEBY8)
 
 
