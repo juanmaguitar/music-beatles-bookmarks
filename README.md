@@ -9,7 +9,7 @@
 
 _[Recommended Book for the Course](http://www.amazon.com/Beatlesongs-William-J-Dowlding/dp/0671682296/)_
 
-###[Week One: Early Days and success in the UK](Week One - Early days and success in the UK.md)
+###[Week One: Early Days and success in the UK](Week 1 - Early days and success in the UK.md)
 
 - Before BeatleMania 
 - Hamburg and Liverpool
@@ -20,7 +20,7 @@ _[Recommended Book for the Course](http://www.amazon.com/Beatlesongs-William-J-D
 - [With the Beatles](https://www.youtube.com/watch?v=4pDg31xZGBs)
 - S.C.U. - She Loves You, I Want to Hold Your Hand
 
-###[Week Two: Success in America and the world](Week Two - Success in America and the world.md)
+###[Week Two: Success in America and the world](Week 2 - Success in America and the world.md)
 
 - The Beatles are Coming!
 - The Beatles in the Movies
@@ -29,6 +29,16 @@ _[Recommended Book for the Course](http://www.amazon.com/Beatlesongs-William-J-D
 - Beatles For Sale, Fall 1964
 - SCU - I’m A Loser and Eight Days a Week
 - Brian Epstein and George Martin
+
+###[Week Three: Pop maturity](Week 3 - Pop maturity.md)
+
+- Overview of 1965: BeatleMania continues
+- Help! The Movie
+- From Craftsmen to Artists
+- Help! The Album
+
+
+
 
 
 **_Extra Info from instructor John Covach_**
