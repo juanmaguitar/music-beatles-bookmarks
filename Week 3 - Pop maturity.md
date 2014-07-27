@@ -68,9 +68,8 @@ _**Books by John Lennon**_
 - [The Monkees](http://www.youtube.com/watch?v=O3PLYHzZTtU)
 - [Eric Clapton and the Yardbirds](http://www.youtube.com/watch?v=pdrzYDuqRkc)
 
-##[Help! The Album]((http://www.youtube.com/watch?v=BX-61Vg2lkA)
+##[Help! The Album](http://www.youtube.com/watch?v=BX-61Vg2lkA)
 
-![image](http://en.wikipedia.org/wiki/File:Help.jpg#mediaviewer/File:Help.jpg)
 
 
 ####John Songs
