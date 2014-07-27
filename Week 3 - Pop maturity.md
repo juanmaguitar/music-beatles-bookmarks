@@ -70,8 +70,6 @@ _**Books by John Lennon**_
 
 ##[Help! The Album](http://www.youtube.com/watch?v=BX-61Vg2lkA)
 
-
-
 ####John Songs
 
 
@@ -110,8 +108,68 @@ _**Books by John Lennon**_
 - [by Larry Williams](http://www.youtube.com/watch?v=PQRbeunfbDE)
 
 
+##SCU - Help!, You’ve Got To Hide Your Love Away, I’ve Just Seen a Face, Yesterday
+
+- [Help!](http://www.youtube.com/watch?v=aCGvZgDvtkU)
+- [You've got to hide your love away](http://www.youtube.com/watch?v=-jrkIMYwuJM)
+- [I've just seen a face](http://www.youtube.com/watch?v=FQGCZ7HyrMY)
+- [Yesterday](http://www.youtube.com/watch?v=2WQAl5nJWHs)
 
 
+##[Rubber Soul](http://www.youtube.com/watch?v=YMUqV6G3PY0)
+
+####Singles
+
+- [Day Tripper](http://www.youtube.com/watch?v=Fwt2qwPctb4)
+- [We can work it out](http://www.youtube.com/watch?v=ZNfuTDbdKoY)
+- [Nowhere man](http://www.youtube.com/watch?v=PASYqq4-iD0)
+
+
+####John Songs
+
+- [Norwegian wood](http://www.youtube.com/watch?v=ySg0HWBj6KY)
+- [Nowhere man](http://www.youtube.com/watch?v=PASYqq4-iD0)
+- [The word](http://www.youtube.com/watch?v=VGopUELFC-I)
+- [Girl](http://www.youtube.com/watch?v=hcbqcn0up7U)
+- [In my life](http://www.youtube.com/watch?v=lN4BqEvb18M)
+- [Run for your life](http://www.youtube.com/watch?v=a3wNopYS8YE)
+
+####Paul Songs
+
+- [Drive my car](http://www.youtube.com/watch?v=f7v6HlfOqok)
+- [You won't see me](http://www.youtube.com/watch?v=BsrQgIQSQSw)
+- [Michelle](http://www.youtube.com/watch?v=GbsfZe8s56M)
+- [I'm looking through you](http://www.youtube.com/watch?v=Ra5drgntKOI)
+
+####John and Paul Song
+
+- [Wait](http://www.youtube.com/watch?v=6O5w5h2T87c)
+
+####George Songs
+
+- [Think for yourself](http://www.youtube.com/watch?v=HKxE_mOR3Jc)
+- [If i needed someone](http://www.youtube.com/watch?v=Me4yCKIUt5o)
+
+####John w/ Paul and Ringo
+
+- [What goes on](http://www.youtube.com/watch?v=s0yiCpEvGTQ)
+
+
+##SCU - Norwegian Wood, In My Life, Michelle, I’m Looking Through You, If I Needed Someone
+
+- [Norwegian wood](http://www.youtube.com/watch?v=ySg0HWBj6KY)
+- [In my life](http://www.youtube.com/watch?v=lN4BqEvb18M)
+- [Michelle](http://www.youtube.com/watch?v=GbsfZe8s56M)
+- [I'm looking through you](http://www.youtube.com/watch?v=Ra5drgntKOI)
+- [If i needed someone](http://www.youtube.com/watch?v=Me4yCKIUt5o)
+
+
+
+
+
+
+
+ 
 
 
 
