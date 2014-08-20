@@ -36,7 +36,9 @@ _[Recommended Book for the Course](http://www.amazon.com/Beatlesongs-William-J-D
 - Help! The Movie
 - From Craftsmen to Artists
 - Help! The Album
-
+- SCU - Help!, You’ve Got To Hide Your Love Away, I’ve Just Seen a Face, Yesterday
+- [Rubber Soul](http://www.youtube.com/watch?v=YMUqV6G3PY0)
+- SCU - Norwegian Wood, In My Life, Michelle, I’m Looking Through You, If I Needed Someone
 
 
 
