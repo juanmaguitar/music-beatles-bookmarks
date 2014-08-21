@@ -40,7 +40,17 @@ _[Recommended Book for the Course](http://www.amazon.com/Beatlesongs-William-J-D
 - [Rubber Soul](http://www.youtube.com/watch?v=YMUqV6G3PY0)
 - SCU - Norwegian Wood, In My Life, Michelle, I’m Looking Through You, If I Needed Someone
 
+###[Week Four: Psychedelia](Week 4 - Psychedelia.md)
 
+- The Rigors of Touring and the Freedom of the Studio
+- [Revolver: The Album](https://www.youtube.com/watch?v=3Tqv4zdKHtk)
+- SCU - Rain, Tomorrow Never Knows, Eleanor Rigby, For No One, Taxman
+- On the Way to the Summer of Love
+- [Sgt. Pepper’s Lonely Hearts Club Band](https://www.youtube.com/watch?v=1T5fqLBhZgo)
+- SCU - Strawberry Fields, Being for the Benefit of Mr. Kite, Penny Lane, She’ Leaving Home, Within You Without You
+-  Loss and New Directions in Fall, 1967
+- [Magical Mystery Tour- The Album](https://www.youtube.com/watch?v=jvHXIPhknp4)
+- SCU - All You Need Is Love, Fool on the Hill, Blue Jay Way
 
 
 **_Extra Info from instructor John Covach_**

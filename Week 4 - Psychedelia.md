@@ -165,3 +165,7 @@ No Singles
 - [Flying](https://www.youtube.com/watch?v=qFrpclWP3eQ)
 
 ## SCU - All You Need Is Love, Fool on the Hill, Blue Jay Way
+
+- [All you need is love](https://www.youtube.com/watch?v=vVNnrq8MdZU)
+- [The Fool on the Hill](https://www.youtube.com/watch?v=0fEuuxlB3aY)
+- [Blue Jay Way](https://www.youtube.com/watch?v=-HNgIqKDC4Q)
