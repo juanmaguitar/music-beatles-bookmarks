@@ -52,6 +52,18 @@ _[Recommended Book for the Course](http://www.amazon.com/Beatlesongs-William-J-D
 - [Magical Mystery Tour- The Album](https://www.youtube.com/watch?v=jvHXIPhknp4)
 - SCU - All You Need Is Love, Fool on the Hill, Blue Jay Way
 
+###[Week Five: A co-op of singer-songwriters](Week 5 - A co-op of singer-songwriters.md)
+
+- 1968 - Events and Singles
+- The Beatles (White Album)
+- Paul Songs
+- SCU - Lady Madonna, Hey Jude, Ob-La-Di, Ob-La-Da
+- White Album - The John Songs
+- SCU - Revolution, Happiness Is a Warm Gun, Julia
+- White Album – George and Ringo Songs
+- SCU - The Inner Light, While My Guitar Gently Weeps, Piggies
+- [Yellow Submarine](http://www.youtube.com/watch?v=8oknCJ67V_8)
+
 
 **_Extra Info from instructor John Covach_**
 
