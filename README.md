@@ -64,6 +64,17 @@ _[Recommended Book for the Course](http://www.amazon.com/Beatlesongs-William-J-D
 - SCU - The Inner Light, While My Guitar Gently Weeps, Piggies
 - [Yellow Submarine](http://www.youtube.com/watch?v=8oknCJ67V_8)
 
+###[Week Six: Get Back](Week 6 - Get Back.md)
+
+- Week 6 Introduction
+- The Get Back Project
+- Get Back/Let It Be, The Album
+- SCU - Let It Be, Dig a Pony, I Me Mine, I Got a Feeling
+- The Grand Finale: Abbey Road
+- Abbey Road: Side One
+- SCU - Here Comes the Sun, Maxwell’s Silver Hammer, I Want You (She’s So Heavy)
+- Abbey Road: Side Two (A Longer Day in the Life)
+- Conclusions
 
 **_Extra Info from instructor John Covach_**
 
